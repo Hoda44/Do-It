@@ -38,18 +38,18 @@ And follow up on progress and achievements, as it enhances the effectiveness of 
 
 Contributors
 
-Ruba Ahmed Mohammed
+- Ruba Ahmed Mohammed
 
-Aisha Amer Muhammad Al-Hamidi Asiri 
+- Aisha Amer Muhammad Al-Hamidi Asiri 
 
-Jawaher mohammed
+- Jawaher mohammed
 
-Huda Ibrahim mdawe
+- Huda Ibrahim mdawe
 
-Ghaida Hassan Alhady
-
-Sadeem Al-Hassan
+- Ghaida Hassan Alhady
+  
+- Sadeem Al-Hassan
 
 to contact us
 
-444809842@kku.edu.sa
+- 444809842@kku.edu.sa
